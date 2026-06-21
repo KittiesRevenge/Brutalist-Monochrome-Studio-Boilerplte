@@ -1,0 +1,7 @@
+# To You Who Showed Me Your True Self
+
+**Date:** April 2, 2026
+
+---
+
+Would you call if you knew how much I've cried? Would you come hold me & tell me you care if you knew the tears sometimes fall down like rain? How can I make you understand how badly this eats away at me, that you don't even blink an eye to my suffering. Could you possibly hear or feel the betrayal that I feel inside my bones. You said so much & so little in 3 months time. You must be so hard & cold from prison that you would never know how bad this hurts. To think of you like my sparring partner who could've challenged me to be a better woman instead you wanted me to be weak so you could have me just where you wanted me, always calling you to get you to come to me. At first the obsession was the dope, then it became something else altogether ble you couldn't keep your hands off me when you saw me. You even wanted to fuck me with your g/f in the car downstairs, but I wouldn't let you. How can you not feel something, remorse, guilt, shame, lust... since we haven't touched? I guess my touch wasn't enough for you to really crave me & not just my body. Just when I think I'm stronger I realize you haven't called or text me, yet again another day w/o you tears my heart into ripped up pieces again. How could I have let myself feel like this over a man who only came to me when I called him for drugs? Why did I allow you to take over my body & my soul like that?

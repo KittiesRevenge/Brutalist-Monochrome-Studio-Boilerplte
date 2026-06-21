@@ -1,0 +1,7 @@
+# Unrequited Soul Tie
+
+**Date:** Undated
+
+---
+
+An unrequited soul tie is a devastating spiritual and emotional trap. It occurs when you form a profound, life-altering connection with someone who only views you as a temporary pitstop, a resource, or an escape from their reality. You open up your entire spirit, your body, and your business mind to them, giving them the devotion reserved for a king, while they treat you as an insignificant placeholder. The trauma of this dynamic is that it mirrors past abuse. It triggers the survival mechanisms of a battered woman—convincing yourself that if you just change enough, if you just clean up enough, if you just perform better, or stop doing the substance entirely, you can finally prove your worth to them. You become obsessed with a fantasy version of them—the version from the jacuzzi tub, the version that promised adventures and finessing new cities together. But the reality is cold truth. They want the perks of your loyalty, the 'King's pussy,' without ever giving you the respect of honesty. Breaking an unrequited soul tie requires realizing that your value was never theirs to define. The letters become the weapon to sever the tie. When you stop texting the 'books' to someone who doesn't read them, and start writing the book for yourself, the spell finally breaks.

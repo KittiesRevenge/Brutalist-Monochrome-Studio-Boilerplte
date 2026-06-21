@@ -1,0 +1,8 @@
+# Again I'm A Mess
+
+**Date:** April 1, 2026
+**Time:** 10:56 am
+
+---
+
+why do I sit here hour after hour, day after day weeping & sobbing & sometimes just crying with no sound; emotionally distraught while you carry on with your life like nothing has happened? What did I do to deserve this type of abuse? Why do I think something is wrong with my me & that I'm not worthy or good enough to be the woman by your side? How do you make love to me everytime knowing that I'm falling in love w/ you while we're doing it & then act like it means nothing. Why am I not important to you? Why won't you carve out time to show me I'm wrong? B/C I'm not wrong. I just don't know how to accept it. I don't know how to separate my feelings from the passion. my passion runs too deep. My body speaks to my heart when a man makes love to me the way you do. I'm a mess. I'm a blubbering mess & your probably next to another woman making love to her in the same way. Where is your heart or do you have one? Why are you dragging me through the mud? Why is this happening to me? I didn't ask for you to come to my hotel & manipulate me into having sex w/ you. I didn't want to love anyone other than my man in jail & I wish I had never met you. I feel so ignorant & childish for not being able to see what you were doing. I wish the sex had never gotten better & better. And you'll never read these letters not that I even want you to. What can I do to make you feel like I feel right now? Why don't you hurt & feel pain in your heart like...

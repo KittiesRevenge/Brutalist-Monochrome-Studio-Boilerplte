@@ -1,0 +1,11 @@
+# Long Ago I Believed in Love @ First Sight
+
+**Date:** March 30, 2026
+
+---
+
+Long ago I believed in love @ first sight. I miss you already. Bye.
+
+today I'm lost again. IDK why or what you think your doing with my heart right now but when I find out from facebook that you had people in your room, in your house partying & you didn't even answer my texts last night I really see that I'm way more invested then you will ever be & I'm not built to be put last. I'm not used to having to fight for anyone of my men's attention much less a text goodnight or goodmorning beautiful. In fact you don't ever tell me I'm beautiful so IDK where your head is at but I need a little more & you just aren't willing to give it to me. I'm sure you're gonna say that your gonna back off, which you've already done twice now, but I promise when I can fight the urge to talk to you or allow you into my bubble I'm going to. I can't be with you the way I want so I guess the Universe was wrong, we weren't meant for each other & I'm trying to put us together like a picnic basket when you don't even want a girlfriend to cook or clean for you. We are opposite & the sex is great but the absence of you throughout the day & especially at night is disheartening to the point I'm ready to collect my tears in a jar so you can see just how much it hurts me to know you don't think about me until you need your penis & balls drained. Everyday is confusing & your living a dream while I'm over here struggle bussin just to get put in a whip. which you had & let some other female drive. No wonder you got screwed outta that deal. I need you more then ever & you don't have time for anything other then a sneaky link. I hate crying over you & I knew this was coming. I'm a fool to think a dope boy could ever love a customer enough to help her get her life together. But then you showed me your "hustling" getting clean & I'm crying out for help. All you see is money & ass from me & your making me misjudge everything I thought I saw in you. Just leave me alone Bre. Just do you & stop letting me feel you physically & not mentally, emotionally or with your heart.
+
+— Heartbroken clarity - Kittie

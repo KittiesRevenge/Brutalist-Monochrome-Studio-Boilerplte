@@ -1,7 +1,11 @@
 # Arcana Writing Studio
 
-## Project: The Absentee Knot in my Soul Tie
+## Project: The Soul Tie that never was
 
-My heart broke so I wrote a book so he could see how I could turn it around to benefit me and not him in everyway!!
+This is a therapeutic sanctuary for processing trauma, rejection, and reclaiming self-worth through the power of writing. 
 
-This is a private sanctuary for uncovering mysteries and documenting memoirs. Built with the **Arcana Writing Studio** framework.
+### Current Projects:
+- **The Soul Tie that never was**: A memoir exploring unrequited cosmic connections.
+- **War Letters**: A collection of historical correspondence (In Progress).
+
+Built with the **Arcana Writing Studio** framework.
